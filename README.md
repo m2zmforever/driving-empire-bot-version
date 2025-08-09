@@ -1,1 +1,1 @@
-Priv. Bot Version Check
+Private Bot Version Check Repo. (￣、￣)
